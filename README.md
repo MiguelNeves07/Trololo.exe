@@ -1,2 +1,15 @@
 # Trololo.exe
-Hello! Trololo.exe is a virus to troll your friends! (Joke.Win32.Trololo.exe)
+
+═██████══█████════██████══██════██████══██════██████═
+═══██════██═══█═══██══██══██════██══██══██════██══██═
+═══██════█████════██══██══██════██══██══██════██══██═
+═══██════██═══█═══██══██══██════██══██══██════██══██═
+═══██════██════█══██████══████══██████══████══██████═
+
+-----------------------------------------------------
+
+Trololo.exe is a JokeVirus to troll all your friends,
+then dont change any archive of your computer, its
+only to troll your friends! :)
+-----------------------------------------------------
+discord: miguel11nvs#6666
